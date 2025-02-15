@@ -1,6 +1,4 @@
-# atmn.github.io-aththiya_ameen-
-My Personal Portfolio Website
-ATHTHIYA SAHUL HAMEED AMEEN
+** ATHTHIYA SAHUL HAMEED AMEEN **
   London, UK |   +447577989394|   aththiya.datainsights@gmail.com   https://www.linkedin.com/in/sahulhameedameenaththiya/
 
 Professional Summary
